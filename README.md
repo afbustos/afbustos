@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @afbustos
 - 👀 I’m interested in crypto 
-- 🌱 I’m currently learning no much, honestly
+- 🌱 I’m currently learning not much, honestly
 - 💞️ I’m looking to collaborate on (?)
 - 📫 How to reach me af.bustos@gmail.com
 
